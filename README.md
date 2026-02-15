@@ -1,0 +1,1 @@
+# polinom_regresyonu_al-st-rmas-
